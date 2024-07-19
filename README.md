@@ -1,0 +1,1 @@
+# Lightroom-CC-13.2.2-Crack
